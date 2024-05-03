@@ -4,3 +4,4 @@
 ## colledge20education23@gmail.com
 ## Отчет должен быть в формате PDf и содержать ФИО студента, группу, номер лабораторной работы, описание задание, скриншоты решения и выводы. (см. образец)
 
+![N|Solid](https://viettuans.vn/uploads/2023/06/he-thong-nhung-la-gi-ung-dung-thuc-te-cua-he-thong-nhung-9.jpg)
